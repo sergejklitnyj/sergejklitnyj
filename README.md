@@ -1,8 +1,8 @@
 12- 👋 Hi, I’m @sergejklitnyj
 - 👀 I’m interested in ...
-vxcvrently learning ...
+vxcvrently learning asdac...
 - 💞️ I’m lookisdng to collaborsacxzcate on ..tryrtytryrty.asfvx
-- 📫 How to reach me ...asd
+- 📫 How to reacczxzx me ...asd
 
 <!---as
 sergejklitnyj/sergejklitnyj hjkhjkis a ✨ specisadal ✨ repository because its `README.md` (this file) appears on your GitHub profile.x
