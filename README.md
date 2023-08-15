@@ -5,7 +5,7 @@ vxcvrently learning asdac...
 - 📫 How to reacczxzx me ...asd
 
 <!---as
-sergejklitnyj/sergejklitnyj hjkhjkis a ✨ specisadal ✨ repository because its `README.md` (this file) appears on your GitHub profile.x
+sergejklitnyj/sergejklitnyj hjkhjkis a ✨ casxzcspecisadal ✨ repository because its `README.md` (this file) appears on your GitHub profile.x
 You can cnmclick the Preview link to take a look at your changes.ads
 --->cxas
 sadwqsazd
