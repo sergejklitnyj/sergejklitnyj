@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 vxcvrently learningzxccxzc acvbsdac...
 - 💞️ I’m lookisdng to collaborcsacxczxczcate on ..tryrtytryrty.abcz
-чсим Howям to reacczxzx me ...asdzcx
+чсим Howям to reacczсмчсмчсxzx me ..ваіваі.asdzcxіваіва
 счм
 <!---as
 sergejklitnyj/sergejklitnyj hjkhjkis a asd✨ casxzcspecisadal  x✨ repository because its `README.md` (this filevc) appears on your GitHиcvbаub profile.x
