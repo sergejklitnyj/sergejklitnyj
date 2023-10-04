@@ -1,7 +1,7 @@
 12- 👋  Hi, I’m @sergejklitnyjvcxzczxczxівфіввфіczxccvxzczxcxzc
 - 👀 I’m interested in ...sadasdasd
 vxcvrently learningzxccxzc acvbsdac...zxczxczxc
-- 💞️ I’m lookisdng to collaborcsacxczxczcate on ..tryrtytryrty.abcz
+- 💞️ I’m lookisdng to collaborcsacxczxczcate on ..tryrtytryrty.abczlh
 чсим Howям to reacczсмчсмчсxzx me ..ваіваsdasdі.asdzsdfsdcxіваіва
 счмasdfasdf
 <!---asgfsd
