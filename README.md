@@ -1,7 +1,7 @@
 12- 👋  Hi, I’m @sergejklitnyjvcxzczxczxівфіввфіczxccvxzczaSASc cxvxcxzcfdsfdf
 - 👀 I’m interested in ...gkhjjkфівівф...фівіфвфzxczxczxc
 - 💞️ I’m lookisdng to collaborcsacxczxczcate on ..tryrtytryrty.abczlh
-чсим Howям to reacczсмчсмчсxzx me ..ваіваsdasdі.asdzsdfsdcxівалпоіва nmbasdxz
+чсим Howям to reacczсмчсмчсxzx me ..ваіваsdasdі.asdzsdfsdcj,vhgxівалпоіва nmbasdxz
 счмasdfasdfsadcx
 <!---asgfsdasdsdadasdasdacxzczxc
 sergejklitnyj/sergejklitnyj hjkhjkis a asd✨ casxzcspecisadal  x✨ repository because its `README.md` (this filevc) appears on your GitHиcvbаub profile.xlkj
