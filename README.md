@@ -1,4 +1,4 @@
-12- 👋  Hi, I’m @sergejklitnyjvcxzczxczxівasdsadsadфіввфіczxccvxzczaSASc cxvxcxzcfdsfdf
+12- 👋  Hi, I’m @sergejklitnyjvcxzczxczxівasdsadsadфіввфіczxccvxzczaSASc cxvxcxzcfdsfdfggfd
 - 👀 I’m interested in ...gkhjjkфівівф...фівіфвфzxczxczxc
 - 💞️ I’m lookisdng to collaborcsacxczxczcate on ..tryrtytryrty.abczlh
 чсим Howям to reacczсмчсмчсxzx me ..ваіваsdasdі.asdzsdfsdcj,vhgxівалпоіва nmbasdxz
