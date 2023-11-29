@@ -1,6 +1,6 @@
 12- 👋  Hi, I’m sadkkksasd@sergejklitnyjvcxzczxczxівasdsasdzcxadsadфівіфвіфвфівфвфіввфіczxccvxzczaSASc hkghjhghkkgjiikgcxvxcxzcfdsfdfggfdваasdsdasdsxasascczcxвпваsdfdsfпмсч
 - 👀 I’m interested in ...gkhjjkфівівф...фівіфвфzxczxczxc
-- 💞️ I’m lookisdng to collaborcsacxczxczcfadsfasdate on ..tryrtytryrty.abczlhsdsdsdsdasdasd
+- 💞️ I’m lookisdng to collaborcsacxczxczcfadsfasdate on ..tryrtytryrty.abczlhsdsdssdsdsdssdasdasd
 чсим Howям to reacczсмчсмчсxzx me ..ваіваsdasdі.asdzsdfsdcj,vhgxівалпоsadsaіва nmbasdxz
 счмasdfasdfsadcx
 <!---asgfsdasdsdadasdasdacxzczxc
